@@ -10,6 +10,8 @@ Agora o Anakin é um aprendiz de jedi.
 
 ## Episodio 03: A Revolta dos Sith
 
+Sem spoilers!!
+
 ## Episodio 04: Uma Nova Esperança
 
 ## Episodio 05: O Império Contra-Ataca
