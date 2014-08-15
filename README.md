@@ -16,4 +16,6 @@ Sem spoilers!!
 
 ## Episodio 05: O Império Contra-Ataca
 
+O personagem Luke começa seu treinamento jedi.
+
 ## Episodio 06: O Retorno do Jedi
