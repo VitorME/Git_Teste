@@ -22,4 +22,4 @@ O personagem Luke começa seu treinamento jedi.
 
 ## Episodio 06: O Retorno do Jedi
 
-Sem spoilers!!
+Luke e seus amigos vencem o império.
