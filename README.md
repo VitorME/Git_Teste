@@ -14,6 +14,8 @@ Sem spoilers!!
 
 ## Episodio 04: Uma Nova Esperança
 
+Começa muito tempo depois do episodio anterior.
+
 ## Episodio 05: O Império Contra-Ataca
 
 ## Episodio 06: O Retorno do Jedi
